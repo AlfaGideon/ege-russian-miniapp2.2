@@ -1,0 +1,1 @@
+# ege-russian-miniapp2.2
